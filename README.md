@@ -1,4 +1,3 @@
-Hi, I’m Shaikh Tarique
-I have completed my masters degree in computers and currently employed as Android developer as a fresher
-and hoping learn and grow with this field 
-Thank you,:)
+Hi, I’m Tarique Shaikh
+I have completed my masters degree in computers(MCA) and currently working as Android developer.I have over 1 year of experice in this field and i am excited learn and grow with this field.
+Thank you
